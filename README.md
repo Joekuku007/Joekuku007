@@ -110,8 +110,7 @@ I'm always interested in discussing:
 
 **Feel free to reach out:**
 - 📧 Email: joekuku007@gmail.com
-- 💼 LinkedIn: [Your LinkedIn Profile]
-- 🐦 Twitter: [@YourHandle]
+- 💼 LinkedIn: https://www.linkedin.com/in/joseph-kuku-b115443ab/overlay/contact-info/
 
 ---
 
